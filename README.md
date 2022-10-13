@@ -1,5 +1,5 @@
 ## Hi there :)
-I'm currently studying as an IT major at the University of Science, Ho Chi Minh City.
+I'm currently studying as an IT bachelor at the University of Science, Ho Chi Minh City.
 
 **Contact me**
 
